@@ -12,3 +12,5 @@ ada yang bayar bang jumlah nya bisa sesuai in berapa aja bang tapi bayar🐦
 ya bayar nya se ikhlas nya
 chat aja wa.me/6283841852697
 lagi butuh🐦
+
+supaya ga jadi beban keluarga🗿
